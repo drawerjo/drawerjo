@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @drawerjo
-- 👀 I’m interested in cartoon art & animation 
+- 👀 I’m interested in cartoon art & animation as well as programming
 - 🌱 I’m currently learning animation and cyber security 
 - 💞️ I’m looking to collaborate on art and game development projects 
-- 📫 How to reach me: and username on Instagram 
+- 📫 How to reach me: add @drawerjo on instagram 
 - ⚡ Fun fact: most fun facts aren't fun
 
 <!---
